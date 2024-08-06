@@ -1,0 +1,1 @@
+# SOM_ai_project
